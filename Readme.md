@@ -1,0 +1,2 @@
+Belajar aja pw
+kakakakkamam
